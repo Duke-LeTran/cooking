@@ -39,3 +39,5 @@ Result: glassy non-stick layer (if it's still sticky, it wasn't hot enough)
 # Source
 * [Tasty](https://www.youtube.com/watch?v=KLGSLCaksdY)
 * [Man-Bun Cook](https://www.youtube.com/watch?v=PDTCgxvmShc)
+* [r/castiron](https://old.reddit.com/r/castiron/comments/4oa6yd/cast_iron_newbie_what_and_which_brand_to_get/)
+* [Cowboy](https://www.youtube.com/watch?v=rRZMXZfcol8)
