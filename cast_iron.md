@@ -7,7 +7,7 @@
 * don't cook acidic foods (tomato sauce, wine, or vinegar)
 * high heat is ok (great for steaks!)
 
-# I. Seasoning
+# I. Maintenance
 ## A. Clean
 1. Scrub with steel wool and mild soap
 2. Rinse off hot water
